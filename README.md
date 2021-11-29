@@ -51,4 +51,4 @@
 
 > The Revised Black Book by William Wallace
 
-> 爆破器材简易生产法
+> 爆破器材简易生产法 张德耀
