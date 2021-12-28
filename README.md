@@ -52,3 +52,12 @@
 > The Revised Black Book by William Wallace
 
 > 爆破器材简易生产法 张德耀
+
+> Kitchen improvised fertilizer explosives by Tim Lewis
+
+> Improvised Kitchen Explosives by Tim Lewis
+
+> New and Improved C-4 by Ragnar Benson
+> The Mujahideen Explosives Handbook by Abdel Aziz
+
+> Field Expedient Methods for Explosives Preparations
